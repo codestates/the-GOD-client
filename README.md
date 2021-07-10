@@ -1,6 +1,9 @@
 # 💞 FansSum
 ![fanssum_bi](https://images.velog.io/images/seungsang00/post/e6668950-f751-46e9-b76f-9893a955f12b/fanssum_bi-02.png)
 
+👉👉 [**FansSum 방문하기**](https://fanssum.com/)
+
+
 ## Fans + Sum : 팬심이 모여 문화가 되다
 
 
